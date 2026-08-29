@@ -76,7 +76,7 @@ Expected graduation: **2027**
 
 ## Connect With Me
 
-- LinkedIn:www.linkedin.com/in/mo-men-khaza-leh-ab11a0227
+- LinkedIn: www.linkedin.com/in/mo-men-khaza-leh-ab11a0227
 - GitHub: https://github.com/momenkhazaleh84
 - Email: Momenkhazaleh84@gmail.com
 
